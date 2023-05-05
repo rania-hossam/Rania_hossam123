@@ -7,11 +7,11 @@ I understand that my coding skills are still limited and there is still room for
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=niconielsen32&label=Profile%20views&color=0e75b6&style=flat-square" alt="niconielsen32" /> </p>
 
-<p align="left"> <a href="https://twitter.com/nielsencv_ai" target="blank"><img src="https://img.shields.io/twitter/follow/nielsencv_ai?logo=twitter&style=for-the-badge" alt="nielsencv_ai" /></a> </p>
+<p align="left"> <a href="https://twitter.com/Elbadriiiii" target="blank"><img src="https://img.shields.io/twitter/follow/nielsencv_ai?logo=twitter&style=for-the-badge" alt="nielsencv_ai" /></a> </p>
 
 
 
-- 📫 Business inquiries **thecodinglibraryyt@gmail.com**
+- 📫 Business inquiries **Raniahossam@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
